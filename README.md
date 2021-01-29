@@ -1,0 +1,1 @@
+# SlopeSoft-app-ads
